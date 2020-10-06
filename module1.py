@@ -4,4 +4,3 @@ stay tuned
 
 Still learning
 
-Learning some mroe things
