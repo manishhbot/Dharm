@@ -3,3 +3,5 @@ I am going to make a lot of applications, I am going to build lots of websites a
 stay tuned 
 
 Still learning
+
+Learning some mroe things
